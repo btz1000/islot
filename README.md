@@ -1,4 +1,4 @@
 # islot
 
 
-https://islot.top/
+https://islot1.com
